@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/61/54/83/61548397290a71a32ca44e5ae7695d49.jpg" width="600" />
+  <img src="https://sun9-1.userapi.com/s/v1/if2/K33v4tbcNnwC8E8sdvAV2fjvtXBCA7n05bisPosA0ou8rwTL90SZN4_jfPI6Gh00Fbq5hgwKI6tNXqKZd-ELSaOx.jpg?quality=95&as=32x12,48x18,72x28,108x42,160x62,240x92,360x139,480x185,540x208,640x246,720x277,1080x416,1280x493&from=bu&u=za6TOwBA8xAZRQ5gLyoQ3X0-SBoHh4RHyvEGv1ERVZs&cs=640x0" width="600" />
 </p>
 
 <h1 align="center">🩸🥩 𝕊𝕠𝕤𝕚𝕤𝕜𝕒𝕂𝕚𝕝𝕝3𝕣 🥩🫀</h1>
@@ -29,7 +29,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.pinimg.com/originals/dd/be/28/ddbe283335d1967640c58c6f104a00c5.gif" width="420" />
+  <img src="https://sun9-38.userapi.com/s/v1/if2/3u3yNOx6t529Ejt0vjNQSechcLNbm3YMeK9Nv32glEicc4I1ZSZ3vvbce6m_pRJhg4dY6TsiIut9_8YPZhwFNfd9.jpg?quality=95&as=32x12,48x18,72x28,108x42,160x62,240x92,360x139,480x185,540x208,640x246,720x277,1080x416,1280x493&from=bu&u=b2yrQyX5T2dv-WT9Wrlh6cWNMjAQwNcqixctgIXaSM0&cs=640x0" width="420" />
 </p>
 
 <p align="center">
@@ -39,7 +39,7 @@
 </p>
 
 <p align="center">
-  <b>🎭 𝔣𝔞𝔫𝔡𝔬𝔪 𝔣𝔩𝔞𝔪𝔢𝔰 🔥</b><br><br>
+  <b>🥩  𝔣𝔞𝔫𝔡𝔬𝔪 𝔣𝔩𝔞𝔪𝔢𝔰 🥩</b><br><br>
   🩸 creepypasta • south park • final fantasy • COD <br>
   🫀 breaking bad • doki doki • undertale • rusty lake <br>
   🥩 mlp • f3sp • alice madness returns • deltarune <br>
