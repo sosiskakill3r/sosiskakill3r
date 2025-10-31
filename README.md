@@ -5,6 +5,10 @@
 <h1 align="center">🩸🥩 𝕊𝕠𝕤𝕚𝕤𝕜𝕒𝕂𝕚𝕝𝕝3𝕣 🥩🫀</h1>
 
 <p align="center">
+  <sub><i>Rus / Eng / Rom</i></sub>
+</p>
+
+<p align="center">
        born to overheat emotions  
           and undercook every plan.  
               chaos on the grill, life on low heat.  
