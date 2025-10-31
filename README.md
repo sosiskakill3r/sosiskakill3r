@@ -29,7 +29,7 @@
 </p>
 
 <p align="center">
-  <img src="https://sun9-38.userapi.com/s/v1/if2/3u3yNOx6t529Ejt0vjNQSechcLNbm3YMeK9Nv32glEicc4I1ZSZ3vvbce6m_pRJhg4dY6TsiIut9_8YPZhwFNfd9.jpg?quality=95&as=32x12,48x18,72x28,108x42,160x62,240x92,360x139,480x185,540x208,640x246,720x277,1080x416,1280x493&from=bu&u=b2yrQyX5T2dv-WT9Wrlh6cWNMjAQwNcqixctgIXaSM0&cs=640x0" width="420" />
+  <img src="https://i.pinimg.com/1200x/24/77/d4/2477d4db9afb4d899a2ce04404525d9c.jpg" width="420" />
 </p>
 
 <p align="center">
@@ -49,8 +49,4 @@
   🥩 mlp • f3sp • alice madness returns • deltarune <br>
   🩸 FNAF • Sg • sky: children of the light <br>
   🫀 outlast • SH • RE •
-</p>
-
-<p align="center">
-  <img src="https://i.pinimg.com/1200x/24/77/d4/2477d4db9afb4d899a2ce04404525d9c.jpg" width="480" />
 </p>
