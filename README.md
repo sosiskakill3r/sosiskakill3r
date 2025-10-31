@@ -33,13 +33,17 @@
 </p>
 
 <p align="center">
+  <img src="https://i.pinimg.com/originals/dd/be/28/ddbe283335d1967640c58c6f104a00c5.gif" width="420" />
+</p>
+
+<p align="center">
 🫀 stay raw <br>
 &nbsp;&nbsp;&nbsp;&nbsp;🥩 stay real <br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;🩸 stay rare
 </p>
 
 <p align="center">
-  <b>🥩  𝔣𝔞𝔫𝔡𝔬𝔪 𝔣𝔩𝔞𝔪𝔢𝔰 🥩</b><br><br>
+  <b>🎭 𝔣𝔞𝔫𝔡𝔬𝔪 𝔣𝔩𝔞𝔪𝔢𝔰 🔥</b><br><br>
   🩸 creepypasta • south park • final fantasy • COD <br>
   🫀 breaking bad • doki doki • undertale • rusty lake <br>
   🥩 mlp • f3sp • alice madness returns • deltarune <br>
