@@ -39,7 +39,7 @@
 </p>
 
 <p align="center">
-  <b>🎭 𝔣𝔞𝔫𝔡𝔬𝔪 𝔣𝔩𝔞𝔪𝔢𝔰 🔥</b><br><br>
+  <b>🥩 𝔣𝔞𝔫𝔡𝔬𝔪 𝔣𝔩𝔞𝔪𝔢𝔰 🥩</b><br><br>
   🩸 creepypasta • south park • final fantasy • COD <br>
   🫀 breaking bad • doki doki • undertale • rusty lake <br>
   🥩 mlp • f3sp • alice madness returns • deltarune <br>
