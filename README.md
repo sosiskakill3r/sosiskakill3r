@@ -1,20 +1,19 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/80/cd/12/80cd1287bf28ebed354ac9e2ccc6c212.jpg" width="600">
+  https://i.pinimg.com/736x/bd/93/35/bd9335eec436efe1e0fd6782d2160989.jpg
 </p>
-
 <h1 align="center"> 🥩𝕊𝕠𝕤𝕚𝕤𝕜𝕒𝕂𝕚𝕝𝕝3𝕣🥩</h1>
 
 <p align="center">
-                                                 <i>born to cause mild chaos and slightly overcook myself in life’s frying pan.</i>
+                                                    <i>★ born to cause mild chaos and slightly overcook myself in life’s frying pan.★ </i>
 </p>
 
----
+--- 
 
 <p align="center">
-                                                                        🥩 powered by sarcasm & poor decisions <br>
-                                                        🦴 haunted by unfinished tasks <br>
-                                     🫀 emotionally grilled, spiritually medium-rare <br>
-                      🧠 probably thinking about meat instead of life
+                                                           ★              🥩 powered by sarcasm & poor decisions <br>     ★ 
+                                                ★         🦴 haunted by unfinished tasks <br>       ★ 
+                                ★      🫀 emotionally grilled, spiritually medium-rare <br>     ★ 
+                     ★  🧠 probably thinking about meat instead of life    ★ 
 </p>
 
 ---
