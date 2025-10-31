@@ -54,3 +54,8 @@
 <p align="center">
   <img src="https://sun9-1.userapi.com/s/v1/if2/K33v4tbcNnwC8E8sdvAV2fjvtXBCA7n05bisPosA0ou8rwTL90SZN4_jfPI6Gh00Fbq5hgwKI6tNXqKZd-ELSaOx.jpg?quality=95&as=32x12,48x18,72x28,108x42,160x62,240x92,360x139,480x185,540x208,640x246,720x277,1080x416,1280x493&from=bu&u=za6TOwBA8xAZRQ5gLyoQ3X0-SBoHh4RHyvEGv1ERVZs&cs=640x0" width="420" />
 </p>
+
+<hr style="border: none; border-top: 2px solid #700000; width: 60%; margin: 20px auto; opacity: 0.7;">
+<p align="center">
+  <sub>🩸 chaos served cold • emotions still sizzling 🩸</sub>
+</p>
